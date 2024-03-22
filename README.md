@@ -1,12 +1,13 @@
-![cai-xin-chao](https://github.com/hatcaiday/hatcaiday.github.io/assets/39556344/c5f63116-f1d2-4d64-8b20-59b4c73bf084)
-
+![cai-xin-chao](https://github.com/hatcaiday/hatcaiday.github.io/assets/39556344/58893705-f709-47a7-bfbb-2e1faa1bca17)
 
 ### 🌱 cải xin chào,
 
 chào mừng bạn đến với khu vườn của mình,
 mình là hạt cải, một hạt đang gieo,
 
-đây là nơi mình sẽ bắt đầu gieo, để một mai nó sẽ nảy mầm thành một rừng cây 🎄🌳🎄
+đây là nơi mình sẽ gieo hạt, để một mai nó sẽ nảy mầm thành một rừng cây 🎄🌳🎄
 - về công nghệ
 - [về sách](https://hatcaiday.github.io/sach/)
 - những thứ linh tinh
+
+hy vọng khu vườn của cải sẽ đem lại thật nhiều của cải cho bạn 😇

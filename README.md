@@ -1,4 +1,5 @@
-![cai-xin-chao](https://github.com/hatcaiday/hatcaiday.github.io/assets/39556344/4a98559d-13bc-41e6-a421-54de83f76238)
+![cai-xin-chao](https://github.com/hatcaiday/hatcaiday.github.io/assets/39556344/c5f63116-f1d2-4d64-8b20-59b4c73bf084)
+
 
 ### 🌱 cải xin chào,
 
